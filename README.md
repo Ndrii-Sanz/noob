@@ -1,0 +1,2 @@
+# noob
+Kimoci ikeh-ikeh
